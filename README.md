@@ -1,4 +1,4 @@
-# Hi there, I'm Oghenetejiri Enaibe! 👋
+# Hi 👋, I'm Oghenetejiri Olorunyomi Enaibe 
 
 ## About Me 🚀
 
