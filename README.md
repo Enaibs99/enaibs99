@@ -14,6 +14,6 @@ I'm a passionate Junior Backend Developer with experience in Python and JavaScri
 
 - **[Personal Website / Blog] https://sites.google.com/view/oghenetejiri-olorunyomi-enaibe/about?authuser=2
 - **[LinkedIn] (https://www.linkedin.com/in/oghenetejiri-enaibe-4b0299202)
-- **[Twitter] enaibs_archer
+- **[Twitter] https://x.com/enaibs_archer?t=YizzNAGVZXObbor43QkP7Q&s=09
 
 
